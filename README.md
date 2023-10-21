@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DaraDibaji
-- 👀 I’m interested in Secutity Plan
+- 👀 I’m interested in Secutity Plans
 - 🌱 I’m currently learning out security
 - 💞️ I’m looking to collaborate on my work
 - 📫 How to reach me by outlook or something else
